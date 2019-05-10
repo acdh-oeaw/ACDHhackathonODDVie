@@ -1,1 +1,0 @@
-Mateusz Zoltak, Ksenia Zaytseva
